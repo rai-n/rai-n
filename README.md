@@ -1,6 +1,6 @@
 # Neeraj Rai
 **Full Stack Developer**
-📞 07578974749 | 📧 Neeraj.Rai@City.ac.uk | [LinkedIn](https://linktr.ee/neerio)
+📧 Neeraj.Rai@City.ac.uk | [LinkedIn](https://linktr.ee/neerio)
 🌍 London, United Kingdom
 
 ## Summary
